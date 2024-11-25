@@ -1,0 +1,1 @@
+Hello Future Me. I'm so exicted to try out my first project. Hopefully, i"ll have alot to learn after this.
